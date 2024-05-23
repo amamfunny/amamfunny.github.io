@@ -1,0 +1,1 @@
+# amamfunny.github.io
